@@ -12,3 +12,9 @@ I suffer from generalized anxiety; here are my tips on battling it.
 - Thoughts on catastrophizing about the future:
   - Humans treat physical and imagined threats equally.
   - Have I successfully tackled the things I'm worried about in the past? 
+
+
+- Notes from talk with aunt:
+   - In stressful time (e.g. coronavirus pandemic), don't set high standards for yourself. If you can't exercise without an exercise buddy (due to social isolation), it's totally okay to just not exercise!
+   - As a computer science student, you probably aren't too attached to the outcome of art or finance students. Don't be too attached to math and computer science either! Pay "debt" slower and work less hours per day!
+   - My parents are not just lending me money, they want to spend that money so that I can be educated.
